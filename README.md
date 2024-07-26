@@ -10,7 +10,7 @@
 
 4. RR'nin temelleri güçlü kalmaya devam ediyor ve marka hiç bu kadar tanınmamıştı, ancak daha fazla iş yapıyoruz, daha fazla maliyetle daha düşük gelir elde ediyoruz
 
-5. 3. çeyrek odağı 5 alanda:
+5. Üçüncü çeyrek odağı 5 alanda:
 
    - İK personeli yeniden yapılandırma ve odaklanma
    - 5 x 4 - 5 ülke önceliği ve 4 ülke odağı (bağışçı öncelikli ülkeleri yansıtarak -- parayı takip et)
