@@ -2,7 +2,7 @@
 
 **Genel Bakış**
 
-1. 2. çeyrek geliri = 3m, 2023'e (3.9m) kıyasla 900k veya %23 düşüş (Not: 2022 2. çeyrek 2.1m (gösterge tablosuna bakınız))
+1. İkinci çeyrek geliri = 3m, 2023'e (3.9m) kıyasla 900k veya %23 düşüş (Not: 2022 2. çeyrek 2.1m (gösterge tablosuna bakınız))
 
 2. Ukrayna -- 2023'ün ilk 6 ayına göre önemli düşüş
 
